@@ -1,0 +1,1 @@
+GALECE email assets
